@@ -1,2 +1,3 @@
 # projectD
-SEVENTEEN GREAT YA~
+- SEVENTEEN GREAT YA~
+- S.COUPS is L
