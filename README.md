@@ -1,3 +1,3 @@
 # projectD
 - SEVENTEEN GREAT YA~
-- S.COUPS is L
+- S.COUPS is Leader
